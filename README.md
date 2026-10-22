@@ -55,4 +55,4 @@ I do have an gamimg YouTube and Twitch i do have some of my reations and art doc
 
 ### contact
 Send me an email to get in contact 
-draconiceternity@gmail.com
+djblox.john@gmail.com
