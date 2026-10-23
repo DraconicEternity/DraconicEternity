@@ -5,7 +5,7 @@ IT-student - Content Creator - Aspiring Software/Game developer
 
 ### About me
 hey there my name is **Djordy** online i am also known as **Draconic**. I am currently studying software development and IT-systems, where i am learningto build websites, apps and as an open project i am creating an game. I enyoy finding new ways to aproach an project and keeping my code readable this comes back in my code i use alot of variables.</br>
-I do have an gamimg YouTube and Twitch i do have some of my reations and art documented on teher wanna check out wht i have created visit [DraconicEternity](https://www.youtube.com/@DraconicEternity).
+I do have an gamimg YouTube and Twitch i do have some of my creations and art documented on tehre wanna check out wht i have created visit [DraconicEternity](https://www.youtube.com/@DraconicEternity).
 
 ---
 
